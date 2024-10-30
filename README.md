@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there I'm student interested on tech world 😼👋
 
 <!--
 **Geraldine04Umasi/Geraldine04Umasi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
